@@ -1,2 +1,2 @@
 # ATIVIDADE-INDIVDUAL
-ATIVIDADE INDIVIDUAL(continuação e outro) - 31/07/25
+atividade individual(continuação e outro) - 31/07/25
